@@ -1,4 +1,5 @@
-![Animation](https://github.com/user-attachments/assets/9770d279-b77e-47df-913d-207bea897b52)
+![Animation](https://github.com/user-attachments/assets/9f6e8125-19fa-4249-8097-39f0790c964d)
+
 
 ## Project Overview
 
